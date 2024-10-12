@@ -4,6 +4,8 @@
 
 **[View on Maps](https://maps.app.goo.gl/w3V2k4t4buBz1rqB9)**
 
+**[pics](https://drive.google.com/drive/folders/18HgLOKDAkbIUYeIZcZSLBkKJ0izpTVvK)**
+
 **Contact: [Mobile/WhatsApp: 6369429061](tel:6369429061)**
 
 Welcome to your dream home—a stunning corner villa with elegant vintage charm, nestled in the heart of Citrus Springvillae on Harlur Road. This 3200 sqft luxury villa boasts a Georgian-era English county aesthetic, offering both modern comforts and timeless design. Freshly painted and fully furnished, it's the perfect blend of style, space, and sophistication!
